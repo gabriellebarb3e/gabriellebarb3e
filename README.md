@@ -1,4 +1,4 @@
-## Hi there 👋 lala
+## oiii Lice sua linda 👋 
 
 <!--
 **gabriellebarb3e/gabriellebarb3e** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
